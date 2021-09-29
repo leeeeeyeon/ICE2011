@@ -12,9 +12,7 @@
 --------------------------
 #### Answer
 
-**1.**
+![Quiz0920](https://user-images.githubusercontent.com/65899774/135282659-88f1c2c7-3a9c-4136-858e-88f02b72861c.jpg)
 
-
-**2.**
 
 
